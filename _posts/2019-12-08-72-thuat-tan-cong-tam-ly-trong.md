@@ -1,0 +1,27 @@
+---
+author: Alpha Book biên soạn
+categories:
+- Marketing - Bán hàng
+description: 72 Thuật Tấn Công Tâm Lý Trong Bán Lẻ
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/3778
+- info: mobi
+  url: https://sachvui.com/download/mobi/3779
+- info: pdf
+  url: https://sachvui.com/download/pdf/4560
+image: https://sachvui.com/cover/2017/72-thuat-tan-cong-tam-ly-trong-ban-le.jpg
+layout: post
+permalink: /72-thuat-tan-cong-tam-ly-trong-ban-le.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- 72 Thuật Tấn Công Tâm Lý Trong Bán Lẻ ebook
+- 72 Thuật Tấn Công Tâm Lý Trong Bán Lẻ pdf
+thumbnail_url: https://sachvui.com/cover/2017/72-thuat-tan-cong-tam-ly-trong-ban-le.jpg
+title: 72 Thuật Tấn Công Tâm Lý Trong Bán Lẻ
+---
+
+ <div class="item-desc text-justify"> <p>Trong xã hội ngày nay, hoạt động thương mại không ngừng phát triển theo hướng cạnh tranh mạnh mẽ, thậm chí rất khốc liệt. Với công nghệ hiện đại, thế giới sản phẩm-dịch vụ ngày càng đáp ứng nhu cầu đa dạng của khách hàng, đem lại những nguồn lợi khổng lồ cho các công ty và tổ chức trên toàn thế giới. Vậy cơ chế vận hành của doanh nghiệp có khả năng thu về lợi nhuận nằm ở yếu tố công nghệ hiện đại? Không hẳn! Bí quyết chính là con người, và ở đây là các nhân viên bán hàng, những người đại diện cho công ty trực tiếp thực hiện các cuộc chào hàng.</p><p>Tuy nhiên, trong nhiều năm, bán hàng bị coi là nghề hạng hai. Nhiều người tỏ ra ngượng ngùng khi nói với người khác rằng họ làm nghề bán hàng. Thái độ này đang dần thay đổi. Ngày nay các công ty mạnh nhất là các công ty có đội ngũ nhân viên bán hàng giỏi nhất. Thật vậy, không thể phủ nhận người bán hàng là người quan trọng nhất trong bất kỳ doanh nghiệp nào. Không bán được hàng thì kể cả các công ty tiếng tăm và lớn mạnh nhất cũng phải đóng cửa. Khâu bán hàng chính là buzi đánh lửa cho bộ máy của doanh nghiệp.Thế nhưng sự khác biệt chính giữa người bán hàng chuyên nghiệp với người bán hàng nghiệp dư chính nằm ở đâu?</p><p>Và đây, bộ công cụ 72 thuật tấn công tâm lý trong bán lẻ này sẽ đáp án thích hợp nhất giúp bạn tháo gỡ những khó khăn của mình. Rồi bạn sẽ thấy câu trả lời cho câu trả lời trên đơn giản đến không ngờ – đó là khả năng nắm bắt tâm lý khách hàng. Như tất cả chúng ta đều biết, trong mọi thương vụ luôn tiềm ẩn lợi ích chính mà khách hàng tìm kiếm cũng như lý do khiến khách hàng từ chối mua, việc của người bán hàng là tìm ra lợi ích và lý do phản đối để thuyết phục khách hàng chọn sản phẩm của mình.</p><p>Được biên soạn dựa trên những tài liệu giá trị, các tình huống và ví dụ minh họa thực tế điển hình trong quá trình bán hàng, cuốn sách sẽ giúp bạn “khai thông” tâm lý của khách hàng cũng như của chính bạn để trở nên năng động, chủ động, không e ngại bị khách hàng từ chối, vững vàng về quan điểm, quyết tâm theo đuổi mục đích – như một nhân viên bán hàng tài năng!</p><p>Một nhân viên bán hàng thành công nhất định phải là một nhà tâm lý học vĩ đại, họ phải lên kế hoạch tỉ mỉ và kỹ lưỡng để sẵn sàng trao đổi và giao tiếp với khách hàng. Giao dịch thành công hay không phần lớn phụ thuộc vào khả năng thấu hiểu tâm lý và nhu cầu của khách hàng.</p><p>Một vài người bán hàng mới vào nghề đã không có cái nhìn đúng đắn về nghề nghiệp của mình. Họ luôn cho rằng họ đang “cần” khách hàng nên thiếu tự tin khi đối diện với khách. Nhiều người bán hàng bồn chồn, bất an, nói năng lắp bắp, nhất là khi trao đổi hoặc đề xuất mua hàng. Họ tự ti, sợ rằng nếu không tôn trọng, nhất nhất nghe theo lời khách hàng thì khách hàng sẽ không mua hàng của mình. Đây là lối suy nghĩ rất phổ biến. Nhân viên bán hàng nghĩ nghề nghiệp của họ là thấp hèn. Nhưng thực tế, điều này hoàn toàn sai lầm.</p><p>Bán hàng cũng như các ngành nghề khác, hoàn toàn đáng được coi trọng. Nhân viên bán hàng không phải là người lôi kéo hay phục tùng khách hàng, mà là người giúp giải quyết vấn đề. Nên nhớ rằng, chỉ khi bạn tôn trọng chính mình, khách hàng mới tin tưởng bạn.</p><p>Để có được thiện cảm của khách hàng, trước tiên, mỗi nhân viên bán hàng phải công nhận khả năng của chính mình, để “cái tôi” có vị thế tích cực. Tuy có thể không trực tiếp dẫn đến việc bán sản phẩm hay dịch vụ thành công, nhưng những biểu hiện tích cực của người bán nhất định sẽ ảnh hưởng tích cực ít nhiều đến người mua. Chẳng ai muốn giao tiếp với người thiếu tự tin, chứ chưa nói đến việc mua hàng hay tin tưởng sử dụng dịch vụ mà người đó cung cấp. Bởi sự tự ti sẽ tạo nên sự nghi ngờ, cảnh giác của khách hàng vào sản phẩm hay dịch vụ được giới thiệu.</p><p>Hãy xem trường hợp một nhân viên tiếp thị máy tính luôn nịnh bợ vị giám đốc nọ, một khách hàng tiềm năng của anh ta. Hành động đó không những không khiến vị giám đốc hài lòng mà còn tỏ ra hết sức khó chịu dù chất lượng sản phẩm máy tính anh ta cung cấp không tồi. Cuối cùng, vị giám đốc đã quyết định không mua hàng với nhận xét: “Cậu không cần nhún nhường như thế, cậu bán sản phẩm chứ không bán những lời ngon ngọt. Còn tôi mua sản phẩm vì chất lượng và sự phù hợp chứ không mua thái độ xun xoe của cậu.”</p><p>Bộ dạng khúm núm hạ mình của nhân viên bán hàng không những hạ thấp giá trị của sản phẩm mà còn “giảm giá” cả thương hiệu và nhân cách của chính họ. Đó là lý do tại sao mỗi nhân viên bán hàng cần duy trì thái độ đúng mực với khách hàng để khiến họ có thiện cảm trong suốt quá trình chia sẻ về sản phẩm.</p> </div>

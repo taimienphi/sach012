@@ -1,0 +1,27 @@
+---
+author: Dương Thu Hương
+categories:
+- Văn Học Việt Nam
+description: Bên Kia Bờ Ảo Vọng
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/3061
+- info: mobi
+  url: https://sachvui.com/download/mobi/3062
+- info: pdf
+  url: https://sachvui.com/download/pdf/3063
+image: https://sachvui.com/cover/2016/ben-kia-bo-ao-vong.jpg
+layout: post
+permalink: /ben-kia-bo-ao-vong.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Bên Kia Bờ Ảo Vọng ebook
+- Bên Kia Bờ Ảo Vọng pdf
+thumbnail_url: https://sachvui.com/cover/2016/ben-kia-bo-ao-vong.jpg
+title: Bên Kia Bờ Ảo Vọng
+---
+
+ <div class="item-desc text-justify"> <p>Cái nổi bật của tiểu thuyết nằm ở ngay vấn đề mà tác giả đặt ra: lên án thói giả trá, ti tiện, lột trần thực chất tầm thường của những thần tượng trong cuộc sống thông thường của mỗi người. Ý nghĩa khái quát rút ra là: người ta không nên đem cả cuộc đời mình, hạnh phúc của mình đặt dưới chân những thần tượng có bề ngoài hào nhoáng nhưng thực chất tầm thường, phàm tục. Đây không chỉ là vấn đề của các cá nhân riêng lẻ mà ít nhiều còn là vấn đề của thời đại. Với tiểu thuyết này, tác giả đã tấn công vào thành lũy thói quen ngộ nhận cũ. Sự mạnh mẽ ấy làm cho tiểu thuyết có sức hấp dẫn, lôi cuốn ngay từ khi mới xuất bản.</p><p>Cái mạnh của tác giả <em>Bên kia bờ ảo vọng</em> còn ở nghệ thuật xây dựng nhân vật. Tác phẩm của chị không có ý định phán quyết số phận cuộc đời của một con người mà chỉ là một phần, một khúc của đời sống con người. Câu chuyện cũng chỉ xoay quanh chuyện tình ái vặt vãnh của một vài nhân vật thuộc giới văn hóa, văn nghệ, nhà báo, nhà giáo… Thời gian gói tròn trong hơn một năm từ mùa xuân năm nay đến mùa xuân năm sau. Còn không gian thì cũng không quá trải rộng, quá xa nội thành Hà Nội. Mặc dù vậy, nhân vật của chị rất sống, có cá tính riêng. <strong>Dương Thu Hương </strong>tỏ ra khá già dặn trong việc miêu tả những biến thái tâm lý nhân vật, đôi khi chỉ thông qua những biểu hiện nhỏ nhặt bề ngoài: một câu nói lấp lửng, một vết nhăn hoặc một lằn gân xanh mới xuất hiện, một bàn tay buông thõng trước gối, một sải bước đĩnh đạc. Người đọc như cảm thông đến tận cùng nỗi đau mất vợ, tan vỡ tổ ấm gia đình của Nguyên một nhà báo đã từng phạm một tội lỗi thông thường: vì quá chăm chú cho cuộc sống vợ con nên đã trót “đánh đĩ” ngòi bút, viết lách chiều ý thủ trưởng của mình. Chính cái hành vi ấy khiến anh mất vai trò thần tượng trong mắt vợ và điều này kéo theo sự tan vỡ của hạnh phúc gia đình. Người đọc cũng đau xót trước những lầm lỡ của Phương Linh, cô giáo trẻ xinh đẹp, dạy văn giỏi song khá mơ mộng, dại dột, cả tin, trao gửi niềm tin và hy vọng của mình cho các thần tượng: lúc đầu là Nguyên, chồng mình và sau đó là Trần Phương, một nhạc sĩ nổi danh.</p><p>Khi thần tượng thứ hai này sụp đổ hoàn toàn trong lòng chị thì chị đã mất đi tổ ấm gia đình, mà chưa chắc đã không bị cuốn vào một cuộc phiêu lưu tìm thần tượng mới. Quá trình nhận chân sự thật của chị đầy những nối tiếc ảo ảnh, vừa hé mở vừa khép kín để rồi dấn sâu thêm vào lầm lỗi mới. Chị đã phải trả một giá cực đắt. Người đọc thương xót song vẫn có phần chê trách chị. Riêng đối với nhạc sĩ Trần Phương, người đọc đồng tình với sự lên án của tác phẩm. Ngòi bút của <strong>Dương Thu Hương</strong> như lưỡi dao mổ của một bác sĩ lành nghề, giải phẫu những ung nhọt của thần tượng ấy từ nét dáng bề ngoài đến nội tâm bên trong, từ ngôn ngữ giả trá đến những cử chỉ kệch cỡm. Gần như toàn bộ các vinh quang và các dục vọng xấu xa của cuộc đời tập trung vào nhân vật nhạc sĩ này. Hắn quyến rũ đàn bà con gái có bài bản, lớp lang, làm tan vỡ hạnh phúc của nhiều gia đình nhưng lại lên giọng đạo đức giả ngọt xớt, luôn nhân danh sự “đồng điệu tâm hồn” hắn thèm khát trở lại cương vị cũ và vì thèm khát đó hắn đã bán rẻ ngay chính nhu cầu tình yêu và hạnh phúc của bản thân mình để sống với mụ vợ xấu xí chỉ vì mụ là cháu của một lãnh đạo cao cấp…</p><p>Nhược điểm của tiểu thuyết này có lẽ ở sự gia công cấu tứ. Có lẽ vì viết vội, viết liền một mạch nên <strong>Dương Thu Hương</strong> chưa có những gia công (…). Nhân vật của chị còn giới hạn trong một phạm vi hẹp và chưa xa nguyên mẫu là bao, nhất là vóc dáng bên ngoài. Tại sao khuôn mặt nhân vật cứ phải là chữ điền mà không có thể là mặt tròn đầy đặn, lông mày cứ phải là to đậm như một nét mực tàu mà không có thể là lông mày lưỡi mác hoặc râu quai nón mới cạo mà không có thể là bộ ria cánh quạ chẳng hạn… Chỉ cần gia công một chút thì ý nghĩa khách quan của tác phẩm chắc chắn sẽ lớn hơn mà lại tránh được những sự tò mò không cần thiết, nhất là hầu hết những nhân vật của tác phẩm lại cùng ngành, cùng nghề với người viết. Tất nhiên, việc quy cho nhân vật trở về những cái tên thực trong đời là không thể (…) mất nguyên tắc. Một nhược điểm nữa của <em>Bên kia bờ ảo vọng </em>là ở cái kết thúc còn có phần vô vọng của nó. Kẻ giả trá trong tác phẩm mặc dù bị cá nhân Phượng, Phương Linh… vạch mặt, hạ bệ, song hắn vẫn leo lên ghế có chức có quyền, vẫn là thần tượng chói sáng của lớp thanh niên sinh viên mê âm nhạc và những thiếu nữ, thiếu phụ khác lại sẽ sa vào tay hắn. Hạnh phúc những gia đình nào đó có cơ tan vỡ. Những bé như bé Hương Ly lại chịu cảnh bất hạnh. Tất nhiên người đọc không đòi hỏi ở nhà văn một kết thúc có hậu như trong truyện cổ dân gian nhưng tính khuynh hướng của tác phẩm vẫn cần được bộc lộ. Vì vậy, gập cuốn sách lại rồi người đọc vẫn muốn kêu lên <em>“Con người, hãy cảnh giác!</em>”. Hay đó chính là dụng ý của tác giả?</p><p><strong>Nguyễn Khang</strong></p> </div>
